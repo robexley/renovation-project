@@ -1,1 +1,0 @@
-# nidderdale-project
